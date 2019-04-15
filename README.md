@@ -7,7 +7,9 @@ The project has been featured on Fox News, ABC, BBC, and Bold TV.
 https://www.hephaestushand.com/
 
 Awards:
+
 Best Overall, Most Entrepreneurial, and Most Investable - Quarter Zero Incubator Demo Day 2018
+
 Short Listed - 3DHubs Student Grant 2018
 
 ![Imgur](https://i.imgur.com/VT9lUrZ.jpg)
